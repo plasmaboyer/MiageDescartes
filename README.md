@@ -1,3 +1,3 @@
-# MiageDescartes
+#YOLO MiageDescartes
 
-Si vous êtes **attentifs** nous partirons à 17H (exactement)
+Si vous êtes **attentifs** nous partirons à 17H (� confirmer)
