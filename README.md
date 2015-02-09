@@ -1,2 +1,3 @@
 # MiageDescartes
-Git Learning
+
+Si vous êtes **attentifs** nous partirons à 17H03
