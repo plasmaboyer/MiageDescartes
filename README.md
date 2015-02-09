@@ -1,3 +1,3 @@
 # MiageDescartes
 
-Si vous êtes **attentifs** nous partirons à 17H08
+Si vous êtes **attentifs** nous partirons à 17H (environ)
